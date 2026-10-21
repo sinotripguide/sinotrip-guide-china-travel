@@ -57,6 +57,7 @@
 - [Lijiang & Dali: Yunnan's Old Towns in 4 Days](https://sinotripguide.com/article-lijiang-dali-yunnan.html)
 - [Dunhuang: The Silk Road's Desert Gateway](https://sinotripguide.com/article-dunhuang-silk-road.html)
 - [Sanya: China's Beach Escape in 3 Days](https://sinotripguide.com/article-sanya-3-days.html)
+- [Qingdao in 3 Days for Under ¥1,000: Sea, Tsingtao and a ¥90 Taoist Mountain](https://sinotripguide.com/article-qingdao-3-days.html)
 
 ## 🍜 Food & Tours
 
@@ -79,6 +80,7 @@
 - [Сиань за 3 дня: 8 000 терракотовых воинов за 120 юаней, стена на велосипеде и лапша за 20](https://sinotripguide.com/ru/xian.html)
 - [Санья 2026: 30 дней без визы, бесплатные пляжи и храм за 129 юаней](https://sinotripguide.com/ru/sanya.html)
 - [Кантонская ярмарка 2026: как закупить товар в Гуанчжоу за 3 дня без визы](https://sinotripguide.com/ru/guangzhou.html)
+- [Шэньчжэнь за 3 дня: электроника с Хуацянбэя и одежда оптом (цены 2026)](https://sinotripguide.com/ru/shenzhen.html)
 - [Иу за 3 дня: как закупить товар на Футяне и не потеряться](https://sinotripguide.com/ru/yiwu.html)
 
 ---
