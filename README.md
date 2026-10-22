@@ -23,6 +23,7 @@
 - [How to Pay in China with Alipay & WeChat (2026 Guide)](https://sinotripguide.com/article-alipay-wechat-payments.html)
 - [I Paid ¥6 for Noodles With a Visa Card in Shanghai. Here's How (2026 Limits, Fees & Fixes)](https://sinotripguide.com/article-alipay-wechat-pay-guide.html)
 - [No Toilet Paper, Squat Pits & a ¥1 Toll: Surviving China's Public Toilets](https://sinotripguide.com/article-china-toilets-guide.html)
+- [I Spent 7 Days in China for ¥2,300 ($320): a Real 2026 Budget Breakdown](https://sinotripguide.com/article-china-travel-budget.html)
 
 ## 🚄 Getting Around
 
@@ -82,6 +83,7 @@
 - [Кантонская ярмарка 2026: как закупить товар в Гуанчжоу за 3 дня без визы](https://sinotripguide.com/ru/guangzhou.html)
 - [Шэньчжэнь за 3 дня: электроника с Хуацянбэя и одежда оптом (цены 2026)](https://sinotripguide.com/ru/shenzhen.html)
 - [Иу за 3 дня: как закупить товар на Футяне и не потеряться](https://sinotripguide.com/ru/yiwu.html)
+- [Шанхай: Бунд за 0 юаней, сады Юйюань за 30 и Диснейленд от 475 — 3 дня в 2026](https://sinotripguide.com/ru/shanghai.html)
 
 ---
 
