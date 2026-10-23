@@ -24,6 +24,7 @@
 - [I Paid ¥6 for Noodles With a Visa Card in Shanghai. Here's How (2026 Limits, Fees & Fixes)](https://sinotripguide.com/article-alipay-wechat-pay-guide.html)
 - [No Toilet Paper, Squat Pits & a ¥1 Toll: Surviving China's Public Toilets](https://sinotripguide.com/article-china-toilets-guide.html)
 - [I Spent 7 Days in China for ¥2,300 ($320): a Real 2026 Budget Breakdown](https://sinotripguide.com/article-china-travel-budget.html)
+- [5 Days in Beijing for ¥3,400: My Private-Tour Tally vs Doing It Alone](https://sinotripguide.com/article-beijing-5-day-private-tour.html)
 
 ## 🚄 Getting Around
 
@@ -84,6 +85,7 @@
 - [Шэньчжэнь за 3 дня: электроника с Хуацянбэя и одежда оптом (цены 2026)](https://sinotripguide.com/ru/shenzhen.html)
 - [Иу за 3 дня: как закупить товар на Футяне и не потеряться](https://sinotripguide.com/ru/yiwu.html)
 - [Шанхай: Бунд за 0 юаней, сады Юйюань за 30 и Диснейленд от 475 — 3 дня в 2026](https://sinotripguide.com/ru/shanghai.html)
+- [Далянь за 3 дня: море, русский квартал и морская еда — 2 200 юаней](https://sinotripguide.com/ru/dalian.html)
 
 ---
 
