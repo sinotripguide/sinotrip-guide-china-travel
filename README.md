@@ -32,6 +32,7 @@
 - [I Slept 500 km for ¥447: Beijing to Shanghai by Overnight Sleeper Train](https://sinotripguide.com/article-sleeper-train-guide.html)
 - [Airport to City: Transfers Without Overpaying](https://sinotripguide.com/article-airport-transfers.html)
 - [How to Book Domestic Flights in China: Cheap Fares & Luggage Rules](https://sinotripguide.com/article-domestic-flights-booking.html)
+- [¥14 Start, ¥1.8 per km: How I Ordered Every Ride in China With Didi (and You Can Too)](https://sinotripguide.com/article-didi-ride-hailing-guide.html)
 
 ## 🏛️ City Itineraries
 
@@ -86,6 +87,7 @@
 - [Иу за 3 дня: как закупить товар на Футяне и не потеряться](https://sinotripguide.com/ru/yiwu.html)
 - [Шанхай: Бунд за 0 юаней, сады Юйюань за 30 и Диснейленд от 475 — 3 дня в 2026](https://sinotripguide.com/ru/shanghai.html)
 - [Далянь за 3 дня: море, русский квартал и морская еда — 2 200 юаней](https://sinotripguide.com/ru/dalian.html)
+- [30 дней без визы: полное руководство по въезду в Китай для россиян (2026)](https://sinotripguide.com/ru/bezvizovyy-vezd.html)
 
 ---
 
