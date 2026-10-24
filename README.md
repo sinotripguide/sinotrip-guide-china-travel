@@ -24,7 +24,6 @@
 - [I Paid ¥6 for Noodles With a Visa Card in Shanghai. Here's How (2026 Limits, Fees & Fixes)](https://sinotripguide.com/article-alipay-wechat-pay-guide.html)
 - [No Toilet Paper, Squat Pits & a ¥1 Toll: Surviving China's Public Toilets](https://sinotripguide.com/article-china-toilets-guide.html)
 - [I Spent 7 Days in China for ¥2,300 ($320): a Real 2026 Budget Breakdown](https://sinotripguide.com/article-china-travel-budget.html)
-- [5 Days in Beijing for ¥3,400: My Private-Tour Tally vs Doing It Alone](https://sinotripguide.com/article-beijing-5-day-private-tour.html)
 
 ## 🚄 Getting Around
 
@@ -38,6 +37,7 @@
 
 - [Beijing 3-Day Itinerary: Great Wall, Forbidden City & Hutong](https://sinotripguide.com/article-beijing-3-days.html)
 - [Beijing 2-Day Package: Icons & an Evening Cruise](https://sinotripguide.com/article-beijing-2-day-package.html)
+- [5 Days in Beijing for ¥3,400: My Private-Tour Tally vs Doing It Alone](https://sinotripguide.com/article-beijing-5-day-private-tour.html)
 - [Shanghai 2-Day: The Bund, Gardens & Skyline](https://sinotripguide.com/article-shanghai-2-days.html)
 - [¥26 Trains Between 3 Cities: My 5-Day Shanghai–Hangzhou–Suzhou Loop](https://sinotripguide.com/article-shanghai-hangzhou-suzhou-5-days.html)
 - [Hangzhou & West Lake: The Classic 2-Day Escape](https://sinotripguide.com/article-hangzhou-west-lake.html)
