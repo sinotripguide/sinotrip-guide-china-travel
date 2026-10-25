@@ -46,6 +46,7 @@
 - [Chengdu 3-Day Itinerary: Pandas, Hotpot & Teahouses](https://sinotripguide.com/article-chengdu-3-days.html)
 - [My Phone Said I Climbed 98 Floors: 3 Days in Chongqing, the City That Breaks Maps](https://sinotripguide.com/article-chongqing-3-days.html)
 - [Harbin in Winter: Ice Festival & the Russian Quarter](https://sinotripguide.com/article-harbin-winter-ice-festival.html)
+- [Free Tombs and $70 Mausoleums: 48 Hours in Nanjing on a Budget](https://sinotripguide.com/article-nanjing-2-days.html)
 
 ## 🏔️ Nature & Icons
 
@@ -88,6 +89,7 @@
 - [Шанхай: Бунд за 0 юаней, сады Юйюань за 30 и Диснейленд от 475 — 3 дня в 2026](https://sinotripguide.com/ru/shanghai.html)
 - [Далянь за 3 дня: море, русский квартал и морская еда — 2 200 юаней](https://sinotripguide.com/ru/dalian.html)
 - [30 дней без визы: полное руководство по въезду в Китай для россиян (2026)](https://sinotripguide.com/ru/bezvizovyy-vezd.html)
+- [Закупки в Китае в 2026 году: 3 города, 5 шагов и точные цены](https://sinotripguide.com/ru/zakupki-v-kitae.html)
 
 ---
 
