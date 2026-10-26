@@ -24,6 +24,7 @@
 - [I Paid ¥6 for Noodles With a Visa Card in Shanghai. Here's How (2026 Limits, Fees & Fixes)](https://sinotripguide.com/article-alipay-wechat-pay-guide.html)
 - [No Toilet Paper, Squat Pits & a ¥1 Toll: Surviving China's Public Toilets](https://sinotripguide.com/article-china-toilets-guide.html)
 - [I Spent 7 Days in China for ¥2,300 ($320): a Real 2026 Budget Breakdown](https://sinotripguide.com/article-china-travel-budget.html)
+- [Free Calligraphy That Cost ¥600: 7 China Travel Scams and How to Dodge Every One](https://sinotripguide.com/article-china-travel-scams.html)
 
 ## 🚄 Getting Around
 
@@ -52,7 +53,6 @@
 
 - [¥280 a Day in a Painting: 3 Days in Jiuzhaigou at Peak Autumn](https://sinotripguide.com/article-jiuzhaigou-3-days.html)
 - [Zhangjiajie 3-Day Guide: The Avatar Mountains on a Budget](https://sinotripguide.com/article-zhangjiajie-3-days.html)
-- [Free Calligraphy That Cost ¥600: 7 China Travel Scams and How to Dodge Every One](https://sinotripguide.com/article-china-travel-scams.html)
 - [Zhangjiajie 2-Day Package: Glass Bridge & the National Park](https://sinotripguide.com/article-zhangjiajie-2-day-package.html)
 - [4 Days, 2 Parks, 1 Ancient Town: Zhangjiajie + Fenghuang for ¥1,500](https://sinotripguide.com/article-zhangjiajie-fenghuang-4-days.html)
 - [Great Wall Day Tour: Mutianyu vs Badaling](https://sinotripguide.com/article-great-wall-day-tour.html)
