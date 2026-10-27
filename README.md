@@ -11,6 +11,7 @@
 - 📖 **English & Русский** guides for every major destination
 
 ---
+- [Чэнду за 3 дня: без визы, панды и горячий котёл](https://sinotripguide.com/ru/chengdu.html)
 
 ## ✈️ Visa & Entry
 
@@ -36,6 +37,7 @@
 - [¥14 Start, ¥1.8 per km: How I Ordered Every Ride in China With Didi (and You Can Too)](https://sinotripguide.com/article-didi-ride-hailing-guide.html)
 
 ## 🏛️ City Itineraries
+- [Xiamen in 3 Days for ¥600: ¥35 Ferry, Piano Island, and a ¥90 Roundhouse Day (2026)](https://sinotripguide.com/article-xiamen-3-days.html)
 
 - [Beijing 3-Day Itinerary: Great Wall, Forbidden City & Hutong](https://sinotripguide.com/article-beijing-3-days.html)
 - [Beijing 2-Day Package: Icons & an Evening Cruise](https://sinotripguide.com/article-beijing-2-day-package.html)
