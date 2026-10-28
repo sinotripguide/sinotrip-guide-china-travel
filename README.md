@@ -38,6 +38,7 @@
 
 ## 🏛️ City Itineraries
 - [Xiamen in 3 Days for ¥600: ¥35 Ferry, Piano Island, and a ¥90 Roundhouse Day (2026)](https://sinotripguide.com/article-xiamen-3-days.html)
+[The ¥1,800 Rail Loop: Beijing → Shanghai → Xi'an in 8 Days](https://sinotripguide.com/article-beijing-shanghai-xian-8-days.html)
 
 - [Beijing 3-Day Itinerary: Great Wall, Forbidden City & Hutong](https://sinotripguide.com/article-beijing-3-days.html)
 - [Beijing 2-Day Package: Icons & an Evening Cruise](https://sinotripguide.com/article-beijing-2-day-package.html)
@@ -97,6 +98,7 @@
 ---
 
 - [Урумчи за 4,5 часа от Москвы: без визы, базар и Тянь-Шаньское озеро за 155 юаней](https://sinotripguide.com/ru/urumqi.html)
+[Сучжоу за 2 дня: сады ЮНЕСКО за 80 юаней, каналы и древний город](https://sinotripguide.com/ru/suzhou.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
