@@ -74,6 +74,7 @@
 - [Private Tour vs Group Tour in China: Which Pays Off?](https://sinotripguide.com/article-private-vs-group-tour.html)
 - [7 Days, 3 Cities, Zero Headaches: What a Beijing–Xi'an–Shanghai Group Tour Really Costs](https://sinotripguide.com/article-china-7day-group-tour.html)
 - [China in 7 Days (Visa-Free): Beijing, Xi'an & Chengdu — What It Really Costs](https://sinotripguide.com/article-china-7-days.html)
+- [¥8 in Lanzhou: The Beef Noodle Bowl That Rules a 3,700-Restaurant City](https://sinotripguide.com/article-lanzhou-beef-noodles.html)
 
 ---
 
@@ -99,6 +100,7 @@
 
 - [Урумчи за 4,5 часа от Москвы: без визы, базар и Тянь-Шаньское озеро за 155 юаней](https://sinotripguide.com/ru/urumqi.html)
 [Сучжоу за 2 дня: сады ЮНЕСКО за 80 юаней, каналы и древний город](https://sinotripguide.com/ru/suzhou.html)
+- [Хуаншань за 3 дня: море облаков, сосна Инкэсун и реальные цены 2026](https://sinotripguide.com/ru/huangshan.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
