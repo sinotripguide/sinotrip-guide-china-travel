@@ -51,6 +51,7 @@
 - [My Phone Said I Climbed 98 Floors: 3 Days in Chongqing, the City That Breaks Maps](https://sinotripguide.com/article-chongqing-3-days.html)
 - [Harbin in Winter: Ice Festival & the Russian Quarter](https://sinotripguide.com/article-harbin-winter-ice-festival.html)
 - [Free Tombs and $70 Mausoleums: 48 Hours in Nanjing on a Budget](https://sinotripguide.com/article-nanjing-2-days.html)
+- [5 Days, Two Spice Capitals: Chengdu Pandas, Chongqing Hotpot and the 62-Minute Bullet Train](https://sinotripguide.com/article-chengdu-chongqing-5-days.html)
 
 ## 🏔️ Nature & Icons
 
@@ -105,6 +106,7 @@
 - [Хуаншань за 3 дня: море облаков, сосна Инкэсун и реальные цены 2026](https://sinotripguide.com/ru/huangshan.html)
 - [Ухань за 2 дня: Жёлтая башня, река Янцзы и лапша за 6 юаней](https://sinotripguide.com/ru/wuhan.html)
 [Канас: билет 160 юаней, Алтай и бесплатные горы](https://sinotripguide.com/ru/kanas-altay.html)
+- [Куньмин: 30 дней без визы, чайки на Дяньчи и каменный лес за 130 юаней](https://sinotripguide.com/ru/kunming.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
