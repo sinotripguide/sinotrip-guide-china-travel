@@ -52,6 +52,7 @@
 - [Harbin in Winter: Ice Festival & the Russian Quarter](https://sinotripguide.com/article-harbin-winter-ice-festival.html)
 - [Free Tombs and $70 Mausoleums: 48 Hours in Nanjing on a Budget](https://sinotripguide.com/article-nanjing-2-days.html)
 - [5 Days, Two Spice Capitals: Chengdu Pandas, Chongqing Hotpot and the 62-Minute Bullet Train](https://sinotripguide.com/article-chengdu-chongqing-5-days.html)
+- [48 Hours in Guangzhou for Under ¥600: ¥10 Ancestral Hall, ¥28 Phoenix Claws and the Canton Tower at Night](https://sinotripguide.com/article-guangzhou-48h.html)
 
 ## 🏔️ Nature & Icons
 
@@ -107,6 +108,7 @@
 - [Ухань за 2 дня: Жёлтая башня, река Янцзы и лапша за 6 юаней](https://sinotripguide.com/ru/wuhan.html)
 [Канас: билет 160 юаней, Алтай и бесплатные горы](https://sinotripguide.com/ru/kanas-altay.html)
 - [Куньмин: 30 дней без визы, чайки на Дяньчи и каменный лес за 130 юаней](https://sinotripguide.com/ru/kunming.html)
+- [Чжанцзяцзе: Небесные врата за 288 юаней, стеклянная тропа и горы из «Аватара» — цены 2026](https://sinotripguide.com/ru/zhangjiajie.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
