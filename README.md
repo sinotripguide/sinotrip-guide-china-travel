@@ -54,6 +54,7 @@
 - [5 Days, Two Spice Capitals: Chengdu Pandas, Chongqing Hotpot and the 62-Minute Bullet Train](https://sinotripguide.com/article-chengdu-chongqing-5-days.html)
 - [48 Hours in Guangzhou for Under ¥600: ¥10 Ancestral Hall, ¥28 Phoenix Claws and the Canton Tower at Night](https://sinotripguide.com/article-guangzhou-48h.html)
 - [3 Days in Changsha: A ¥40 Academy, a Free Mountain and China's Spiciest Street Food](https://sinotripguide.com/article-changsha-3-days.html)
+- [2 Days in Datong: ¥100 Grottoes, a Cliff Temple With 2,475 Tickets a Day, and a ¥132 Train Home](https://sinotripguide.com/article-datong-yungang-2-days.html)
 
 ## 🏔️ Nature & Icons
 
@@ -111,6 +112,7 @@
 - [Куньмин: 30 дней без визы, чайки на Дяньчи и каменный лес за 130 юаней](https://sinotripguide.com/ru/kunming.html)
 - [Чжанцзяцзе: Небесные врата за 288 юаней, стеклянная тропа и горы из «Аватара» — цены 2026](https://sinotripguide.com/ru/zhangjiajie.html)
 - [Пинъяо за 2 дня: единый билет 125 юаней на 22 объекта и город, где до сих пор живут люди](https://sinotripguide.com/ru/pingyao.html)
+- [Лхаса и Тибет за 4 дня зимой](https://sinotripguide.com/ru/lhasa-tibet-4-days.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
