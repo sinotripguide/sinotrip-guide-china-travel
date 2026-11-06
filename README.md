@@ -80,6 +80,7 @@
 - [China in 7 Days (Visa-Free): Beijing, Xi'an & Chengdu — What It Really Costs](https://sinotripguide.com/article-china-7-days.html)
 - [¥8 in Lanzhou: The Beef Noodle Bowl That Rules a 3,700-Restaurant City](https://sinotripguide.com/article-lanzhou-beef-noodles.html)
 - [¥90 for a 1,400-Year-Old Buddha: 2 Days in Luoyang (Longmen, White Horse Temple &amp; Shaolin)](https://sinotripguide.com/article-luoyang-2-days.html)
+- [How to Order Food in China Without Speaking Chinese: 12 Words, One QR Code and a ¥15 Bowl of Noodles](https://sinotripguide.com/article-ordering-food-china.html)
 [Ride It Like a Local: ¥3 Metro, ¥2 Bus and the Phone That Replaces Your Ticket](https://sinotripguide.com/article-public-transport-guide.html)
 
 ---
@@ -113,6 +114,7 @@
 - [Чжанцзяцзе: Небесные врата за 288 юаней, стеклянная тропа и горы из «Аватара» — цены 2026](https://sinotripguide.com/ru/zhangjiajie.html)
 - [Пинъяо за 2 дня: единый билет 125 юаней на 22 объекта и город, где до сих пор живут люди](https://sinotripguide.com/ru/pingyao.html)
 - [Лхаса и Тибет за 4 дня зимой](https://sinotripguide.com/ru/lhasa-tibet-4-days.html)
+- [Шэньян за три дня: дворец Мукден за 50 юаней, парк Бэйлин за пять и лапша](https://sinotripguide.com/ru/shenyang.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
