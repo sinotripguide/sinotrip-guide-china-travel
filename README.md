@@ -55,6 +55,7 @@
 - [48 Hours in Guangzhou for Under ¥600: ¥10 Ancestral Hall, ¥28 Phoenix Claws and the Canton Tower at Night](https://sinotripguide.com/article-guangzhou-48h.html)
 - [3 Days in Changsha: A ¥40 Academy, a Free Mountain and China's Spiciest Street Food](https://sinotripguide.com/article-changsha-3-days.html)
 - [2 Days in Datong: ¥100 Grottoes, a Cliff Temple With 2,475 Tickets a Day, and a ¥132 Train Home](https://sinotripguide.com/article-datong-yungang-2-days.html)
+- [Beijing Has 8 Railway Stations: Which One You Need, and What a Wrong Choice Costs You](https://sinotripguide.com/article-beijing-train-stations.html)
 
 ## 🏔️ Nature & Icons
 
@@ -115,6 +116,7 @@
 - [Пинъяо за 2 дня: единый билет 125 юаней на 22 объекта и город, где до сих пор живут люди](https://sinotripguide.com/ru/pingyao.html)
 - [Лхаса и Тибет за 4 дня зимой](https://sinotripguide.com/ru/lhasa-tibet-4-days.html)
 - [Шэньян за три дня: дворец Мукден за 50 юаней, парк Бэйлин за пять и лапша](https://sinotripguide.com/ru/shenyang.html)
+- [Ханчжоу за три дня: Линъинь без билета, озеро Сиху бесплатно и поезд из Шанхая от 48 юаней](https://sinotripguide.com/ru/hangzhou.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
