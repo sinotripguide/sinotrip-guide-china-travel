@@ -82,6 +82,7 @@
 - [¥8 in Lanzhou: The Beef Noodle Bowl That Rules a 3,700-Restaurant City](https://sinotripguide.com/article-lanzhou-beef-noodles.html)
 - [¥90 for a 1,400-Year-Old Buddha: 2 Days in Luoyang (Longmen, White Horse Temple &amp; Shaolin)](https://sinotripguide.com/article-luoyang-2-days.html)
 - [How to Order Food in China Without Speaking Chinese: 12 Words, One QR Code and a ¥15 Bowl of Noodles](https://sinotripguide.com/article-ordering-food-china.html)
+- [Turned Away at 11pm: What a Chinese Hotel Really Needs From a Foreign Passport](https://sinotripguide.com/article-china-hotel-foreign-passport.html)
 [Ride It Like a Local: ¥3 Metro, ¥2 Bus and the Phone That Replaces Your Ticket](https://sinotripguide.com/article-public-transport-guide.html)
 
 ---
@@ -117,6 +118,7 @@
 - [Лхаса и Тибет за 4 дня зимой](https://sinotripguide.com/ru/lhasa-tibet-4-days.html)
 - [Шэньян за три дня: дворец Мукден за 50 юаней, парк Бэйлин за пять и лапша](https://sinotripguide.com/ru/shenyang.html)
 - [Ханчжоу за три дня: Линъинь без билета, озеро Сиху бесплатно и поезд из Шанхая от 48 юаней](https://sinotripguide.com/ru/hangzhou.html)
+- [Горные лыжи в Чунли: час от Пекина до олимпийских склонов](https://sinotripguide.com/ru/chongli.html)
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
