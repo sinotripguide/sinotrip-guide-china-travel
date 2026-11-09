@@ -39,6 +39,7 @@
 ## 🏛️ City Itineraries
 - [Xiamen in 3 Days for ¥600: ¥35 Ferry, Piano Island, and a ¥90 Roundhouse Day (2026)](https://sinotripguide.com/article-xiamen-3-days.html)
 [The ¥1,800 Rail Loop: Beijing → Shanghai → Xi'an in 8 Days](https://sinotripguide.com/article-beijing-shanghai-xian-8-days.html)
+- [Wuzhen or Xitang? I Did Both in Two Days — ¥150 vs ¥95 (2026)](https://sinotripguide.com/article-wuzhen-vs-xitang-2-days.html)
 
 - [Beijing 3-Day Itinerary: Great Wall, Forbidden City & Hutong](https://sinotripguide.com/article-beijing-3-days.html)
 - [Beijing 2-Day Package: Icons & an Evening Cruise](https://sinotripguide.com/article-beijing-2-day-package.html)
@@ -119,6 +120,8 @@
 - [Шэньян за три дня: дворец Мукден за 50 юаней, парк Бэйлин за пять и лапша](https://sinotripguide.com/ru/shenyang.html)
 - [Ханчжоу за три дня: Линъинь без билета, озеро Сиху бесплатно и поезд из Шанхая от 48 юаней](https://sinotripguide.com/ru/hangzhou.html)
 - [Горные лыжи в Чунли: час от Пекина до олимпийских склонов](https://sinotripguide.com/ru/chongli.html)
+- [Поезд Пекин — Шанхай: 1318 км за 4 часа 18 минут, билет 553–692 юаня](https://sinotripguide.com/ru/beijing-shanghai-poezd.html)
+
 ## Why Trust These Guides?
 
 Every article is based on **first-hand travel experience**: real ticket prices, real wait times, real menus. Where policies change (visa rules, payment apps, luggage limits), we verify with official sources and date-stamp every update.
