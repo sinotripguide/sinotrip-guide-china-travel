@@ -37,6 +37,8 @@
 - [¥14 Start, ¥1.8 per km: How I Ordered Every Ride in China With Didi (and You Can Too)](https://sinotripguide.com/article-didi-ride-hailing-guide.html)
 
 ## 🏛️ City Itineraries
+
+- [Guizhou in 5 Days: One Waterfall, One Miao Village — Huangguoshu ¥160 / Xijiang ¥90](https://sinotripguide.com/article-guizhou-5-days.html)
 - [Xiamen in 3 Days for ¥600: ¥35 Ferry, Piano Island, and a ¥90 Roundhouse Day (2026)](https://sinotripguide.com/article-xiamen-3-days.html)
 [The ¥1,800 Rail Loop: Beijing → Shanghai → Xi'an in 8 Days](https://sinotripguide.com/article-beijing-shanghai-xian-8-days.html)
 - [Wuzhen or Xitang? I Did Both in Two Days — ¥150 vs ¥95 (2026)](https://sinotripguide.com/article-wuzhen-vs-xitang-2-days.html)
@@ -121,6 +123,7 @@
 - [Ханчжоу за три дня: Линъинь без билета, озеро Сиху бесплатно и поезд из Шанхая от 48 юаней](https://sinotripguide.com/ru/hangzhou.html)
 - [Горные лыжи в Чунли: час от Пекина до олимпийских склонов](https://sinotripguide.com/ru/chongli.html)
 - [Поезд Пекин — Шанхай: 1318 км за 4 часа 18 минут, билет 553–692 юаня](https://sinotripguide.com/ru/beijing-shanghai-poezd.html)
+- [Тяньцзинь за один день из Пекина: 30 минут, 54,5 юаня и колесо за 90](https://sinotripguide.com/ru/tianjin-1-den.html)
 
 ## Why Trust These Guides?
 
