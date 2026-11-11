@@ -59,6 +59,7 @@
 - [3 Days in Changsha: A ¥40 Academy, a Free Mountain and China's Spiciest Street Food](https://sinotripguide.com/article-changsha-3-days.html)
 - [2 Days in Datong: ¥100 Grottoes, a Cliff Temple With 2,475 Tickets a Day, and a ¥132 Train Home](https://sinotripguide.com/article-datong-yungang-2-days.html)
 - [Beijing Has 8 Railway Stations: Which One You Need, and What a Wrong Choice Costs You](https://sinotripguide.com/article-beijing-train-stations.html)
+- [Panda Base + Leshan Giant Buddha in One Day: ¥55 for the Cubs, ¥80 for the Buddha](https://sinotripguide.com/article-panda-base-leshan-day-trip.html)
 
 ## 🏔️ Nature & Icons
 
@@ -124,6 +125,7 @@
 - [Горные лыжи в Чунли: час от Пекина до олимпийских склонов](https://sinotripguide.com/ru/chongli.html)
 - [Поезд Пекин — Шанхай: 1318 км за 4 часа 18 минут, билет 553–692 юаня](https://sinotripguide.com/ru/beijing-shanghai-poezd.html)
 - [Тяньцзинь за один день из Пекина: 30 минут, 54,5 юаня и колесо за 90](https://sinotripguide.com/ru/tianjin-1-den.html)
+- [Чунцин за 3 дня: Хунъядун бесплатно, канатка за 20–30 юаней и хого за 150](https://sinotripguide.com/ru/chongqing.html)
 
 ## Why Trust These Guides?
 
