@@ -63,6 +63,7 @@
 
 ## 🏔️ Nature & Icons
 
+- [Mount Tai in 2 Days: a 6,000-Step Night Climb to Sunrise — ¥115 Ticket, ¥40 Bus, ¥100 Cable](https://sinotripguide.com/article-taishan-2-days.html)
 - [¥280 a Day in a Painting: 3 Days in Jiuzhaigou at Peak Autumn](https://sinotripguide.com/article-jiuzhaigou-3-days.html)
 - [Zhangjiajie 3-Day Guide: The Avatar Mountains on a Budget](https://sinotripguide.com/article-zhangjiajie-3-days.html)
 - [Zhangjiajie 2-Day Package: Glass Bridge & the National Park](https://sinotripguide.com/article-zhangjiajie-2-day-package.html)
@@ -93,6 +94,7 @@
 
 ## 🇷🇺 Русский раздел / Russian Guides
 
+- [Гуйлинь и Яншо за 3 дня: круиз по реке Ли за 215 юаней, плоты на Юлуне и бюджет от 1 400](https://sinotripguide.com/ru/guilin-yangshuo.html)
 - [Маньчжоули за два дня: безвизовый шопинг, гигантские матрёшки и вид на Россию с границы](https://sinotripguide.com/ru/manzhouli.html)
 - [Хэйхэ за выходные: безвизовый шопинг, гигантский флаг и два города на одной реке](https://sinotripguide.com/ru/heihe.html)
 - [Суйфэньхэ: «торговый рай» на границе — без визы, рынок Цинъюнь и 2 минуты на контроль](https://sinotripguide.com/ru/suifenhe.html)
