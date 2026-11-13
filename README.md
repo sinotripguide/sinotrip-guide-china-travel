@@ -69,6 +69,7 @@
 - [Zhangjiajie 2-Day Package: Glass Bridge & the National Park](https://sinotripguide.com/article-zhangjiajie-2-day-package.html)
 - [4 Days, 2 Parks, 1 Ancient Town: Zhangjiajie + Fenghuang for ¥1,500](https://sinotripguide.com/article-zhangjiajie-fenghuang-4-days.html)
 - [Great Wall Day Tour: Mutianyu vs Badaling](https://sinotripguide.com/article-great-wall-day-tour.html)
+- [Mutianyu in Half a Day: A Bus Tour Worth Booking](https://sinotripguide.com/article-mutianyu-bus-tour-half-day)
 - [Terracotta Army Day Tour from Xi'an](https://sinotripguide.com/article-terracotta-army-day-tour.html)
 - [Li River Cruise: Guilin to Yangshuo by Boat](https://sinotripguide.com/article-li-river-cruise.html)
 - [Guilin vs Yangshuo: Which One Should You Base In?](https://sinotripguide.com/article-guilin-vs-yangshuo.html)
@@ -128,6 +129,7 @@
 - [Поезд Пекин — Шанхай: 1318 км за 4 часа 18 минут, билет 553–692 юаня](https://sinotripguide.com/ru/beijing-shanghai-poezd.html)
 - [Тяньцзинь за один день из Пекина: 30 минут, 54,5 юаня и колесо за 90](https://sinotripguide.com/ru/tianjin-1-den.html)
 - [Чунцин за 3 дня: Хунъядун бесплатно, канатка за 20–30 юаней и хого за 150](https://sinotripguide.com/ru/chongqing.html)
+- [Запретный город за полдня: тур с русским гидом](https://sinotripguide.com/ru/zapretnyy-gorod-poldnya)
 
 ## Why Trust These Guides?
 
