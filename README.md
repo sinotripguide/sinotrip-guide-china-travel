@@ -47,6 +47,7 @@
 - [Beijing 2-Day Package: Icons & an Evening Cruise](https://sinotripguide.com/article-beijing-2-day-package.html)
 - [5 Days in Beijing for ¥3,400: My Private-Tour Tally vs Doing It Alone](https://sinotripguide.com/article-beijing-5-day-private-tour.html)
 - [Shanghai 2-Day: The Bund, Gardens & Skyline](https://sinotripguide.com/article-shanghai-2-days.html)
+- [Huangpu River Night Cruise: What ¥125 Buys at 19:00 — 45 Minutes, and the ¥100 Upper-Deck Call](https://sinotripguide.com/article-huangpu-river-night-cruise.html)
 - [¥26 Trains Between 3 Cities: My 5-Day Shanghai–Hangzhou–Suzhou Loop](https://sinotripguide.com/article-shanghai-hangzhou-suzhou-5-days.html)
 - [Hangzhou & West Lake: The Classic 2-Day Escape](https://sinotripguide.com/article-hangzhou-west-lake.html)
 - [Xi'an 3-Day Itinerary: Terracotta Army & the Old City](https://sinotripguide.com/article-xian-3-days.html)
@@ -132,6 +133,7 @@
 - [Чунцин за 3 дня: Хунъядун бесплатно, канатка за 20–30 юаней и хого за 150](https://sinotripguide.com/ru/chongqing.html)
 - [Запретный город за полдня: тур с русским гидом](https://sinotripguide.com/ru/zapretnyy-gorod-poldnya)
 - [Шоу ERA в Шанхае: за что платить, а за что нет](https://sinotripguide.com/ru/era-shou-shankhay)
+- [Нанкин за 2 дня: мавзолей Сунь Ятсена бесплатно, стена за 50, ночной круиз по Циньхуаю за 120 юаней](https://sinotripguide.com/ru/nankin.html)
 
 ## Why Trust These Guides?
 
