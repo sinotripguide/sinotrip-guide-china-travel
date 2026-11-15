@@ -62,6 +62,8 @@
 - [Beijing Has 8 Railway Stations: Which One You Need, and What a Wrong Choice Costs You](https://sinotripguide.com/article-beijing-train-stations.html)
 - [Panda Base + Leshan Giant Buddha in One Day: ¥55 for the Cubs, ¥80 for the Buddha](https://sinotripguide.com/article-panda-base-leshan-day-trip.html)
 
+- [Longji Rice Terraces in a Day: One ¥80 Ticket, Two Villages (Guilin, 2026)](https://sinotripguide.com/article-longji-rice-terraces-day-trip.html)
+
 ## 🏔️ Nature & Icons
 
 - [Mount Tai in 2 Days: a 6,000-Step Night Climb to Sunrise — ¥115 Ticket, ¥40 Bus, ¥100 Cable](https://sinotripguide.com/article-taishan-2-days.html)
@@ -134,6 +136,8 @@
 - [Запретный город за полдня: тур с русским гидом](https://sinotripguide.com/ru/zapretnyy-gorod-poldnya)
 - [Шоу ERA в Шанхае: за что платить, а за что нет](https://sinotripguide.com/ru/era-shou-shankhay)
 - [Нанкин за 2 дня: мавзолей Сунь Ятсена бесплатно, стена за 50, ночной круиз по Циньхуаю за 120 юаней](https://sinotripguide.com/ru/nankin.html)
+
+- [Чанбайшань: северный склон, озеро Тяньчи и три правила](https://sinotripguide.com/ru/changbaishan-tianchi.html)
 
 ## Why Trust These Guides?
 
