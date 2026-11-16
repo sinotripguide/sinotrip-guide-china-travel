@@ -61,6 +61,7 @@
 - [2 Days in Datong: ¥100 Grottoes, a Cliff Temple With 2,475 Tickets a Day, and a ¥132 Train Home](https://sinotripguide.com/article-datong-yungang-2-days.html)
 - [Beijing Has 8 Railway Stations: Which One You Need, and What a Wrong Choice Costs You](https://sinotripguide.com/article-beijing-train-stations.html)
 - [Panda Base + Leshan Giant Buddha in One Day: ¥55 for the Cubs, ¥80 for the Buddha](https://sinotripguide.com/article-panda-base-leshan-day-trip.html)
+- [Qinghai Lake and Chaka in One Day: The Tour I'd Book (Xining, 2026)](https://sinotripguide.com/article-qinghai-lake-chaka-day-tour)
 
 - [Longji Rice Terraces in a Day: One ¥80 Ticket, Two Villages (Guilin, 2026)](https://sinotripguide.com/article-longji-rice-terraces-day-trip.html)
 
@@ -138,6 +139,7 @@
 - [Нанкин за 2 дня: мавзолей Сунь Ятсена бесплатно, стена за 50, ночной круиз по Циньхуаю за 120 юаней](https://sinotripguide.com/ru/nankin.html)
 
 - [Чанбайшань: северный склон, озеро Тяньчи и три правила](https://sinotripguide.com/ru/changbaishan-tianchi.html)
+- [Тулоу Фуцзяни из Сямэня: Хункэн и «принц тулоу» за один день](https://sinotripguide.com/ru/tulou-fujian-iz-syamena.html)
 
 ## Why Trust These Guides?
 
