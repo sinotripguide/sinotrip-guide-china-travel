@@ -83,6 +83,7 @@
 - [Sanya: China's Beach Escape in 3 Days](https://sinotripguide.com/article-sanya-3-days.html)
 - [Qingdao in 3 Days for Under ¥1,000: Sea, Tsingtao and a ¥90 Taoist Mountain](https://sinotripguide.com/article-qingdao-3-days.html)
 - [Wulong Day Trip: 3 Bridges, 1 Gorge, 1 River Boat (Chongqing, 2026)](https://sinotripguide.com/article-wulong-three-bridges-day-trip)
+- [Four days on the Yangtze: the Three Gorges cruise I would actually book](https://sinotripguide.com/article-yangtze-three-gorges-cruise-4-days)
 
 ## 🍜 Food & Tours
 
@@ -142,6 +143,7 @@
 - [Чанбайшань: северный склон, озеро Тяньчи и три правила](https://sinotripguide.com/ru/changbaishan-tianchi.html)
 - [Тулоу Фуцзяни из Сямэня: Хункэн и «принц тулоу» за один день](https://sinotripguide.com/ru/tulou-fujian-iz-syamena.html)
 - [Три храма Чэндэ за один день: Пунин, «малая Потала» и Сюйми Фушоу](https://sinotripguide.com/ru/chengde-tri-khrama-odin-den)
+- [Шаосин за один день: Лу Синь, скалы Ко Янь и озеро Цзяньху без гида](https://sinotripguide.com/ru/shaoxing-odin-den)
 
 ## Why Trust These Guides?
 
