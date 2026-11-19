@@ -64,6 +64,7 @@
 - [Qinghai Lake and Chaka in One Day: The Tour I'd Book (Xining, 2026)](https://sinotripguide.com/article-qinghai-lake-chaka-day-tour)
 
 - [Longji Rice Terraces in a Day: One ¥80 Ticket, Two Villages (Guilin, 2026)](https://sinotripguide.com/article-longji-rice-terraces-day-trip.html)
+- [Wuxi's 88m Buddha in One Day: the 8-Hour Private Tour That Covers All Three Stops (2026)](https://sinotripguide.com/article-wuxi-lingshan-buddha-day-tour)
 
 ## 🏔️ Nature & Icons
 
@@ -144,6 +145,7 @@
 - [Тулоу Фуцзяни из Сямэня: Хункэн и «принц тулоу» за один день](https://sinotripguide.com/ru/tulou-fujian-iz-syamena.html)
 - [Три храма Чэндэ за один день: Пунин, «малая Потала» и Сюйми Фушоу](https://sinotripguide.com/ru/chengde-tri-khrama-odin-den)
 - [Шаосин за один день: Лу Синь, скалы Ко Янь и озеро Цзяньху без гида](https://sinotripguide.com/ru/shaoxing-odin-den)
+- [Хух-Хото за один день: степь Хуэйтэнсилэ и вулкан Улан-Хада за 11,5 часа](https://sinotripguide.com/ru/hohhot-step-volcano-odin-den)
 
 ## Why Trust These Guides?
 
