@@ -66,6 +66,7 @@
 - [Longji Rice Terraces in a Day: One ¥80 Ticket, Two Villages (Guilin, 2026)](https://sinotripguide.com/article-longji-rice-terraces-day-trip.html)
 - [Wuxi's 88m Buddha in One Day: the 8-Hour Private Tour That Covers All Three Stops (2026)](https://sinotripguide.com/article-wuxi-lingshan-buddha-day-tour)
 - [Universal Beijing in One Day: 3 Queues Decide Your Day](https://sinotripguide.com/article-universal-beijing-one-day.html)
+- [Chimelong Safari Park in One Day: 8 Hours, 14 Pandas and the 9:30 Gate](https://sinotripguide.com/article-chimelong-safari-park-one-day)
 
 ## 🏔️ Nature & Icons
 
@@ -148,6 +149,7 @@
 - [Шаосин за один день: Лу Синь, скалы Ко Янь и озеро Цзяньху без гида](https://sinotripguide.com/ru/shaoxing-odin-den)
 - [Хух-Хото за один день: степь Хуэйтэнсилэ и вулкан Улан-Хада за 11,5 часа](https://sinotripguide.com/ru/hohhot-step-volcano-odin-den)
 - [Шанхайский Диснейленд за один день: шесть тарифов, три доплаты, один вывод](https://sinotripguide.com/ru/disneyland-shankhay.html)
+- [Шаолинь и Лунмэнь за один день: 11,5 часа, шесть шоу и 2 345 пещер](https://sinotripguide.com/ru/shaolin-lunmen-odin-den)
 
 ## Why Trust These Guides?
 
