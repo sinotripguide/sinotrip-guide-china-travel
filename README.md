@@ -67,6 +67,7 @@
 - [Wuxi's 88m Buddha in One Day: the 8-Hour Private Tour That Covers All Three Stops (2026)](https://sinotripguide.com/article-wuxi-lingshan-buddha-day-tour)
 - [Universal Beijing in One Day: 3 Queues Decide Your Day](https://sinotripguide.com/article-universal-beijing-one-day.html)
 - [Chimelong Safari Park in One Day: 8 Hours, 14 Pandas and the 9:30 Gate](https://sinotripguide.com/article-chimelong-safari-park-one-day)
+- [Zhangye's Rainbow Mountains in One Winter Day: Pingshan Lake + Danxia in a 13-Hour Tour](https://sinotripguide.com/article-zhangye-danxia-winter-one-day.html)
 
 ## 🏔️ Nature & Icons
 
@@ -150,6 +151,7 @@
 - [Хух-Хото за один день: степь Хуэйтэнсилэ и вулкан Улан-Хада за 11,5 часа](https://sinotripguide.com/ru/hohhot-step-volcano-odin-den)
 - [Шанхайский Диснейленд за один день: шесть тарифов, три доплаты, один вывод](https://sinotripguide.com/ru/disneyland-shankhay.html)
 - [Шаолинь и Лунмэнь за один день: 11,5 часа, шесть шоу и 2 345 пещер](https://sinotripguide.com/ru/shaolin-lunmen-odin-den)
+- [Кашгар за один день: старый город, мечеть Ид Ках и парк Сянфэй — частный тур на 8 часов](https://sinotripguide.com/ru/kashgar-odin-den.html)
 
 ## Why Trust These Guides?
 
