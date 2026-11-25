@@ -70,6 +70,7 @@
 - [Zhangye's Rainbow Mountains in One Winter Day: Pingshan Lake + Danxia in a 13-Hour Tour](https://sinotripguide.com/article-zhangye-danxia-winter-one-day.html)
 - [Quanzhou in One Day: What a 4.6/5, 391-Booked Tour Covers](https://sinotripguide.com/article-quanzhou-world-heritage-one-day.html)
 - [Enshi in One Day: A 06:30 Tour, 3 Hours of Stairs](https://sinotripguide.com/article-enshi-grand-canyon-one-day.html)
+- [Jingdezhen in a Day: Throw Your Own Bowl](https://sinotripguide.com/article-jingdezhen-porcelain-day-tour.html)
 
 ## 🏔️ Nature & Icons
 
@@ -156,6 +157,7 @@
 - [Кашгар за один день: старый город, мечеть Ид Ках и парк Сянфэй — частный тур на 8 часов](https://sinotripguide.com/ru/kashgar-odin-den.html)
 - [Кайфын: 90 минут за столом династии Сун](https://sinotripguide.com/ru/kaifeng-song-dynasty-banquet.html)
 - [Сишуанбаньна зимой: 5 дней в тропиках Китая — слоны, дайская деревня и ночной рынок](https://sinotripguide.com/ru/xishuangbanna-5-days.html)
+- [Уишань за один день: плот по Цзюцюйси, чайные горы и гид без русского](https://sinotripguide.com/ru/wuyishan-odnodnevnyy-tur.html)
 
 ## Why Trust These Guides?
 
