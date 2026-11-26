@@ -71,6 +71,7 @@
 - [Quanzhou in One Day: What a 4.6/5, 391-Booked Tour Covers](https://sinotripguide.com/article-quanzhou-world-heritage-one-day.html)
 - [Enshi in One Day: A 06:30 Tour, 3 Hours of Stairs](https://sinotripguide.com/article-enshi-grand-canyon-one-day.html)
 - [Jingdezhen in a Day: Throw Your Own Bowl](https://sinotripguide.com/article-jingdezhen-porcelain-day-tour.html)
+- [Yabuli in One Day: 3 Hours on Snow, 10 on the Clock](https://sinotripguide.com/article-yabuli-ski-day-trip.html)
 
 ## 🏔️ Nature & Icons
 
@@ -158,6 +159,7 @@
 - [Кайфын: 90 минут за столом династии Сун](https://sinotripguide.com/ru/kaifeng-song-dynasty-banquet.html)
 - [Сишуанбаньна зимой: 5 дней в тропиках Китая — слоны, дайская деревня и ночной рынок](https://sinotripguide.com/ru/xishuangbanna-5-days.html)
 - [Уишань за один день: плот по Цзюцюйси, чайные горы и гид без русского](https://sinotripguide.com/ru/wuyishan-odnodnevnyy-tur.html)
+- [Фошань за день: храм, сад и водный город без гида](https://sinotripguide.com/ru/foshan-shunde-day-trip.html)
 
 ## Why Trust These Guides?
 
